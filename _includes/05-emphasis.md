@@ -1,2 +1,2 @@
-** Keep on going. **
-* Don't be weak*
+**Keep on going.**
+*Don't be weak*
