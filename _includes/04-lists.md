@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Rudest book ever
+2. The Journey
+3. The devil
